@@ -1,2 +1,0 @@
-# medium
-Artigos publicado
